@@ -58,6 +58,7 @@ C 10 по 11 класс обучался в **IT-академии «ШАГ» (М
 
 - Telegram: [@Bloodbo0](https://t.me/Bloodbo0)
 - Email: ilyazerniak@gmail.com
+- LinkedIn:https://www.linkedin.com/in/ilya-zerniak
 
 Буду рад полезным знакомствам, советам и предложениям о сотрудничестве!
 
